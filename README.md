@@ -149,4 +149,4 @@ Acknowledgments
 
 Contact
 
-For inquiries or feedback, reach out to adokweishaq@fcepkn.edu.ng
+For inquiries or feedback, reach out to adokweb17@gmail.com, adokweishaq@fcepkn.edu.ng, sbikelly@gmail.com
